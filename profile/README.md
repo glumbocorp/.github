@@ -3,9 +3,9 @@
 Check out all our cool shit
 
 ## Glumbo KCAs
-> [youtube](https://youtube.com/c/GlumboCorpTMKidsChoiceAwards)
-> [twitter](https://twitter.com/glumbocorpkca)
-> [instagram](https://eelslap.com)
+[youtube](https://youtube.com/c/GlumboCorpTMKidsChoiceAwards) 
+[twitter](https://twitter.com/glumbocorpkca) 
+[instagram](https://eelslap.com) 
 <!--
 
 **Here are some ideas to get you started:**
